@@ -1,0 +1,1 @@
+# SeletordePalavrasImpllementa-oRosemarie
